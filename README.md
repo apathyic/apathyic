@@ -5,6 +5,6 @@
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=winebullets&color=7F484A&style=flat-square&title=tainted&label=tainted" alt="tainted" />
+  <img src="https://camo.githubusercontent.com/6cb197a2b4cff38aaf2f93fd4736ddc3148fe5d806618975bf2579b7dfea5649/68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d7765616b666c6f77657273266c6162656c3d7072696e63657373657326636f6c6f723d79656c6c6f77677265656e267374796c653d666f722d7468652d6261646765" alt="profile views" />
 </p>
 
