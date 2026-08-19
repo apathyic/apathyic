@@ -3,9 +3,7 @@
 𝜗ৎ
 </p>
 
-<p align="center">
-  <img width="736" height="153" alt="IMG_7128" src="https://github.com/user-attachments/assets/197869c1-65ef-475c-ba44-c45d94370dd5" />
-</p>
+
 
 
 
