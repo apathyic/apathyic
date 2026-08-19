@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-i do not enjoy matching shipped characters unless i deem you close and feel comfortable
+i have diagnosed chronic depression along with audhd, please do be patient with me 
 </p>
 
 <p align="center">
