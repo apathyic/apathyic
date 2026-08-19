@@ -16,7 +16,7 @@ i have <b>diagnosed</b> chronic depression along with audhd, be <b>patient</b> w
 </p>
 
 <p align="center">
-i make dark jokes and i am quite flirtatious, <b> do not </b>think i mean any of it
+i make <b>dark</b> jokes and i am quite flirtatious, <b> do not </b>think i mean any of it
 </p>
 
 <p align="center">
