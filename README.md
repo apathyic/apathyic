@@ -12,20 +12,20 @@
 </p>
 
 <p align="center">
-i have diagnosed chronic depression along with audhd, please do be patient with me 
+i have <b>diagnosed</b> chronic depression along with audhd, be <b>patient</b> with me 
 </p>
 
 <p align="center">
-i make dark jokes and i am quite flirtatious, do not think i mean any of it
+i make dark jokes and i am quite flirtatious, <b> do not </b>think i mean any of it
 </p>
 
 <p align="center">
-i take nothing as serious matter unless i am told that i need to do so
+i take <b>nothing</b> as serious matter unless i am told that i <b>need</b> to do so
 </p>
 
 
 
 
 <p align="center">
-other than that, there is nothing more you should know about me
+other than that, there is nothing more <b>you</b> should know about <b>me</b>
 </p>
