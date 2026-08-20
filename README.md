@@ -5,7 +5,7 @@
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=winebullets&label=attempts&color=AAA29F&style=for-the-badge" alt="attempts" />
+  <img src="https://komarev.com/ghpvc/?username=winebullets&label=attempts&color=02050C&style=for-the-badge" alt="attempts" />
 </p>
 
 <p align="center">
