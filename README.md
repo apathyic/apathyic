@@ -20,7 +20,21 @@
 ‎ ‎ ‎ ‎
 </p>
 
+<p align="center">
+‎i made adult jokes ok! block if bothered ok!
+</p>
 
+<p align="center">
+‎ ‎ ‎ ‎
+</p>
+
+<p align="center">
+‎and yes guys i am depressed and suicidal, don’t interact if you’re uncomfortable with me LMAO
+</p>
+
+<p align="center">
+‎ ‎ ‎ ‎
+</p>
 
 <p align="center">
 sign my <a href="https://apathyic.atabook.org">ata</a>
