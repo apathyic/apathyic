@@ -33,7 +33,7 @@
 ‎ ‎ ‎ ‎
 </p>
 <p align="center">
-‎me and the big J
+‎me and the big <a href="https://github.com/cheel2h1">J</a>
 </p>
 
 <p align="center">
