@@ -23,13 +23,17 @@
 <p align="center">
 ‎i made adult jokes ok! block if bothered ok!
 </p>
-
 <p align="center">
 ‎ ‎ ‎ ‎
 </p>
-
 <p align="center">
-‎and yes guys i am depressed and suicidal, don’t interact if you’re uncomfortable with me LMAO
+‎<img width="555" height="333" alt="IMG_7235" src="https://github.com/user-attachments/assets/761107ca-a36b-41c1-b5f4-0a4ee6097e15" /> ‎ ‎ ‎
+</p>
+<p align="center">
+‎ ‎ ‎ ‎
+</p>
+<p align="center">
+‎me and the big J
 </p>
 
 <p align="center">
