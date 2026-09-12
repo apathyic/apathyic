@@ -13,7 +13,7 @@ lelele
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=winebullets&label=attempts&color=000000&style=for-the-badge" alt="attempts" />
+  <img src="https://komarev.com/ghpvc/?username=winebullets&label=⌖&color=000000&style=for-the-badge" alt="⌖" />
 </p>
 
 <p align="center">
