@@ -1,7 +1,5 @@
 
-<p align="center">
-lelele
-</p>
+
 
 <p align="center">
 ‎ ‎ ‎ ‎
@@ -49,5 +47,5 @@ sign my <a href="https://apathyic.atabook.org">ata</a>
 </p>
 
 <p align="center">
-‎<a href="https://github.com/winebullets">main</a> account
+check out my ‎<a href="https://github.com/winebullets">main</a> account
 </p>
