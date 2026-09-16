@@ -46,6 +46,3 @@ sign my <a href="https://apathyic.atabook.org">ata</a>
 ‎ ‎ ‎ ‎
 </p>
 
-<p align="center">
-check out my ‎<a href="https://github.com/winebullets">main</a> account
-</p>
