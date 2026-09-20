@@ -11,7 +11,7 @@
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=winebullets&label=✧&color=000000&style=for-the-badge" alt="✧" />
+  <img src="https://komarev.com/ghpvc/?username=winebullets&label=✧&color=b5b7ac&style=for-the-badge" alt="✧" />
 </p>
 
 <p align="center">
