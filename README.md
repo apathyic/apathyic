@@ -1,6 +1,7 @@
 
 
 
+
 <p align="center">
 ‎ ‎ ‎ call me seejay or, in short, CJ !‎
 </p>
@@ -10,8 +11,17 @@
 
 
 
+<p align="center">
+‎ ‎ ‎ ‎
+</p>
+<p align="center">
+‎ ‎ ‎ ‎
+</p>
 
 
+<p align="center">
+‎ ‎ ‎ <img width="650" height="384" alt="IMG_7400" src="https://github.com/user-attachments/assets/675e5aa1-c513-4a5f-9ced-059417d1e725" />‎
+</p>
 <p align="center">
 ‎ ‎ ‎ ‎
 </p>
