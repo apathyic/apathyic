@@ -11,7 +11,7 @@
 ‎ ‎ ‎ ‎
 </p>
 <p align="center">
-‎ ‎ ‎ ‎
+‎ ‎ ‎ ‎i don’t care what you ship, i hide freely if i’m uncomfortable
 </p>
 
 
